@@ -3,3 +3,5 @@
 dopisek Asi
 
 hehehehe
+
+To, jak BARDZO to wiesz tylko Ty :)
